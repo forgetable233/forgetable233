@@ -1,1 +1,1 @@
-cv phd
+cv
